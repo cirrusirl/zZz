@@ -14,4 +14,4 @@
 <p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/70a22f7a-a8f4-41bc-9eab-4ad9987186e0" />   <strong>READ</strong>   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/60978e1d-9bc0-4419-974a-1a704a59427f" />
 <p align="center"> espeacially if your a pt player.
 
- <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2c5f6f8f-f635-484a-a10e-ce2105658060" /> <p align="center">c+h okay ^_^ㅤㅤfeel free to int with me!!ㅤㅤsuper friendlyㅤㅤstrictly dnc / inspo? ask 4 permissionㅤㅤdon't ask me to make 'you' a skin if we don't even know eachother.
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2c5f6f8f-f635-484a-a10e-ce2105658060" /> <p align="center">c+h okay ^_^ㅤㅤfeel free to int with me!!ㅤㅤsuper friendlyㅤㅤstrictly dnc / heavy inspo
