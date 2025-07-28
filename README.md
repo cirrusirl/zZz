@@ -6,4 +6,5 @@
 <strong>ㅤTARO</strong>ㅤ𓆩ㅤ18</p>
 <p align="center">  6 ﹒2<strong>7</strong>  ﹒25ㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ee7fece1-b34e-403a-b2f4-d17f6f937f65" />
 ㅤn ♡ 
+<p align="center"><img width="357" height="28" alt="image" src="https://github.com/user-attachments/assets/d803da6e-bc21-42f8-b9da-28ccb603f464" />
 
