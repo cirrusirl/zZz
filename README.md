@@ -1,4 +1,9 @@
+<p align="center"> <img width="1500" height="297" alt="image" src="https://github.com/user-attachments/assets/4d5c8d41-b04e-4826-85db-5690a0780bf4" />
 <p align="center">
   <img src="https://media.tenor.com/NVhvN7vO3HEAAAAi/baby-ivan-baby-ivan-alnst.gif" alt="Baby Ivan GIF" width="300">
 </p>
-<p align="center"> me real</p>
+<p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a9995914-e075-4201-a8e9-d95d6718dc36" />
+<strong>ㅤTARO</strong>ㅤ𓆩ㅤ18</p>
+<p align="center">  6 ﹒2<strong>7</strong>  ﹒25ㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ee7fece1-b34e-403a-b2f4-d17f6f937f65" />
+ㅤn ♡ 
+
