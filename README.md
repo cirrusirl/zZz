@@ -5,6 +5,7 @@
   
 <p align="center">
   <img src="https://media.tenor.com/NVhvN7vO3HEAAAAi/baby-ivan-baby-ivan-alnst.gif" alt="Baby Ivan GIF" width="300">
+
 <p align ="center"> <img width="1280" height="103" alt="image" src="https://github.com/user-attachments/assets/2c6b7883-17d5-4cb5-9ec4-cc74acc9b138" />
 
 
