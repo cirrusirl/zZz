@@ -6,7 +6,7 @@
 <p align="center">
   <img src="https://media.tenor.com/NVhvN7vO3HEAAAAi/baby-ivan-baby-ivan-alnst.gif" alt="Baby Ivan GIF" width="300">
 
-<p align ="center"> ![7810289640981698871.gif](https://github.com/user-attachments/assets/944d9999-abac-440d-9506-05679cd93d36
+<p align ="center"> 
 
 
 <p align="center"><img width="357" height="28" alt="image" src="https://github.com/user-attachments/assets/d803da6e-bc21-42f8-b9da-28ccb603f464"/>
